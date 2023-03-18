@@ -33,7 +33,7 @@ python UPMAX.py
 
 ### </> If you copy , Then Give me The Credits </>
 
-### <\> ALL BOMBING FUTURES IN ONE </>
+### <\> BEST SMS BOMBER </>
 
 ## Find Me on :
 
